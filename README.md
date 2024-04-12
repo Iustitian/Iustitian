@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Iustitian (theoretically named after the saint and emperor, but the name was taken)
+- 👀 I’m interested in the classstruggle
+- 🌱 I’m currently learning marxist theory and JavaScript, so....
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: don't reach me
+- 😄 Pronouns: comrade
+- ⚡ Fun fact: life has absolutely no meaning and nothing ever mattered
